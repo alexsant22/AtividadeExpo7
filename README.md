@@ -1,0 +1,2 @@
+# AtividadeExpo7
+ATIVIDADE PRATICA - 03/09/2025
